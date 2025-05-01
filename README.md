@@ -42,7 +42,7 @@ Actualmente desarrollo mi carrera en el área de **Data Analytics**, buscando si
 
 ## 📬 Contacto
 
-- ✉️ juanramonselser@gmail.com  
+- ✉️ juanselser@gmail.com  
 - 🌐 [LinkedIn] (https://www.linkedin.com/in/juan-selser/) 
 - 📂 Este portfolio está en construcción constante. ¡Gracias por visitarlo!
 
